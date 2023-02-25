@@ -1,0 +1,1 @@
+# RIMS-II---Type-I-II-Multipliers-for-Supply-Use-Input-Output-Tables-for-2020-published-by-Gene
